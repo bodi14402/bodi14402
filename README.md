@@ -1,5 +1,5 @@
 # 💫 About Me:
-# Welcome to My GitHub 👨‍💻<br><br>This profile is a **work in progress**, so stay tuned for updates!<br><br>
+# Welcome to My GitHub 👨‍💻<br><br>This profile is still a **work in progress** <br><br>
 # 🌐 Let's Connect!<br>- 💼 [LinkedIn](https://linkedin.com/in/abdelrahman-farghaly)<br>- 📧 **Bodi14402@gmail.com**<br>
 
 
